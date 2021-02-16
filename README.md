@@ -4,10 +4,6 @@ You can use the [editor on GitHub](https://github.com/inf4BS/inf4BS/edit/main/RE
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Modifica
-Modifica 18:19
-
-
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
