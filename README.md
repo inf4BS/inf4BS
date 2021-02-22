@@ -7,5 +7,6 @@ La vanda coerulea è una delle specie di orchidee più apprezzate dai collezioni
 
 ![orchidea blu](https://www.giardinaggio.net/piante-appartamento/orchidee/le-orchidee-blu_NG1.jpg)
 
+La fioritura della cosidetta “orchidea blu” avviene in estate e autunno. La durata della pianta è perenne. Essendo una pianta “spontanea”, la Vanda Coerulea è molto resistenze a malattie, sopratutto ad infestazioni parassitarie e ha la capacità di adattarsi a situazioni ambientali avverse. I suoi semi sono molto fertili. Queste orchidee producono ossigeno e contribuiscono al mantenimento del giusto grado di umidità nell' aria. La sua fioritura è talmente spettacolare, oltre ad essere utile alla produzione di ossigeno, che la sua cura è indispensabile, perciò, affinché germogli in buone condizioni è necessario eseguire un'ottima potatura dell'orchidea di cui si è in possesso.
 
-
+[link](https://www.youtube.com/watch?v=NURa47-0K6I)
