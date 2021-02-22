@@ -1,6 +1,11 @@
-## Aglio
+## Ugo Foscolo
 
-es
+Nasce a Zante, una delle isole Ionie allora appartenente alla Repubblica Veneta, il 6 febbraio 1778 — dal medico Andrea Foscolo, di antica famiglia veneziana, e dalla greca Diamantina Spathis. Il suo nome di battesimo è Niccolò, ma dal 1795 preferisce farsi chiamare Ugo. 
+La famiglia si trasferisce successivamente a Spalato, in Dalmazia, e dopo la morte improvvisa del padre (1788), si trasferisce a causa delle difficoltà economiche, con la madre e i suoi tre fratelli, a Venezia. 
+Il 1797 è un anno fondamentale nella storia della formazione di Foscolo: compone e mette in scena il Tieste, tragedia costruita sui modelli alfieriani e piena di furore libertario. Dopo la discesa dei francesi in Italia, sotto l'influenza delle idee giacobine s'impegna nell'attività politica e nell'aprile del '97 fugge a Bologna dove si arruola nell'esercito napoleonico e pubblica l'ode A Bonaparte liberatore. A maggio, dopo l'arrivo dei francesi e l'instaurazione del regime democratico, fa ritorno a Venezia e vi svolge un'intensa attività politica fino all'amara delusione del trattato di Campoformio (1797)(con il quale Napoleone cede Venezia all’Austria ponendo così fine alle speranze indipendentistiche dei giacobini italiani). 
+Le due odi Ai novelli repubblicani (incitamento a difendere i diritti conquistati contro i nemici della Rivoluzione) e soprattutto Bonaparte Liberatore (appello al generale vittorioso perchè mantenga le promesse di libertà) esprimono il risentimento e i fondati timori di Foscolo. 
+Venduta la sua patria all'Austria, lascia per sempre Venezia e la madre. Quindi, parte in volontario esilio, per la capitale della Repubblica Cisalpina, Milano, dove si lega ai più attivi gruppi giacobini italiani, conosce il vecchio Parini e diviene amico di Vincenzo Monti, ed è tra i principali collaboratori del foglio giacobino “Il Monitore italiano” presto soppresso da Bonaparte. 
+Nel '98 si arruola volontario nella Guardia Nazionale di Bologna e insieme con i francesi, combatte valorosamente in Emilia e Romagna, ma rimane ferito sia a Cento sia poi, una seconda volta, a Genova assediata. Nel frattempo scrive l’ode alla giovane contessina Luigia Pallavicini, vittima di un incidente equestre A Luigia Pallavicini caduta da cavallo.
 
 
-
+![ugo foscolo](http://t0.gstatic.com/images?q=tbn:ANd9GcS8pd1-tMRWbfnj8iUSCLWUhDFZUcBzI998IeKOacFg0_lUR9BpwMvtQVrtyCs7)
